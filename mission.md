@@ -1,2 +1,2 @@
-Mission lead: Rebecca Phiri
+Mission lead: Phiri Rebecca
 
