@@ -1,4 +1,2 @@
-Mission lead: Bright Chingwala
-
-
+Mission lead: Rebecca Phiri
 
